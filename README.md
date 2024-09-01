@@ -132,5 +132,5 @@
 
 💎 [Download VIP](https://raw.githubusercontent.com/amnesia214/Amnesia/main/AmnesiaVIP.rar)
 
-For those interested in obtaining the VIP version password, it is available for purchase. Please contact the developer directly via [Telegram](https://t.me/amnesia49406) for further details.     
+For those interested in obtaining the VIP version password, it is available for purchase. Please contact the developer directly via [Telegram](https://t.me/amnesia49406) for further details.      
 
